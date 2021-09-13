@@ -9,7 +9,7 @@ Projemin amacı evinizi / iş yerinizi satışa çıkarmadan önce diğer ilanla
 
 projenin çalışıp denenmiş halini fotoğraf olarak ekledim
 
-not:kullanmış oldğuğm veriler de dosyanın içinde kayıtlıdır
+not:kullanmış olduğum veriler de dosyanın içinde kayıtlıdır
 
 İletşim bilgileri:
 intagram: @1alidonbaloglu
